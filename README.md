@@ -16,7 +16,7 @@ This App is for a general audience. This app do not address anyone under the age
 
 Contact
 
-To contact me on topics related to products, privacy policy or in another case, use jennifer.zoe123@gmail.com
+To contact me on topics related to products, privacy policy or in another case, use ...... my email address
 
 Best regards!
 
